@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Goku007
+- 👋 Hi, I’m @Goku0007
 - 👀 I’m interested in .....
 - 🌱 I’m currently Pursuing B.Pharm.
 - 📫 How to reach Through Telegram https://t.me/Xailong6969
