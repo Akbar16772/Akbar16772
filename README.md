@@ -4,6 +4,6 @@
 - 📫 How to reach Through Telegram https://t.me/Xailong6969
 
 <!---
-Akbar16772/Akbar16772 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Goku0007/Goku007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
